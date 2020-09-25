@@ -1,11 +1,8 @@
 # 小奶猫最新下载地址（2020年8月6日更新）
-### [3w40.com](http://3w40.com)
-### [dz0b.com](http://dz0b.com)
+### [fq5f.com](http://fq5f.com)
+### [a51j.com](http://a51j.com)
 ### 主播版下载地址 [0jzy.com](http://0jzy.com)<br> （观众下载无法使用）
-备用观众版下载地址如下<br> 
-4ijl.com<br>  
-fq5f.com<br>  
-a51j.com<br>  
+备用观众版下载地址如下<br>    
 co7a.com<br>  
 1e3n.com<br>  
 0s9l.com<br>  
